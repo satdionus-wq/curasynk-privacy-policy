@@ -1,0 +1,1 @@
+# curasynk-privacy-policy
